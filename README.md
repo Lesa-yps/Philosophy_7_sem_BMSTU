@@ -1,0 +1,1 @@
+# Philosophy_7_sem_BMSTU
